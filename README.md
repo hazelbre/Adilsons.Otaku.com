@@ -1,1 +1,1 @@
-# Adilsons.Otaku.com
+# Adilsons-Otaku.com
